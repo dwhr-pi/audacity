@@ -1,3 +1,5 @@
+https://www.computerbild.de/artikel/cb-Tipps-Software-Audacity-Tutorial-auf-Deutsch-mit-den-10-besten-Tipps-fuer-Einsteiger-30517781.html
+
 # Audacity
 
 
